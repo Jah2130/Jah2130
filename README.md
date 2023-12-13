@@ -2,7 +2,7 @@
 - 👀 I’m interested in crypto and spirits. The second one is my job, the first one a hobby 😄
 - 🌱 I’m currently learning everything I can about this universe and developping
 - 💞️ I’m looking to collaborate on any project of the WEB3 ans especially on the IA ecosystem
-- PS: I don't have much experience in coding.
+
 
 
 <!---
