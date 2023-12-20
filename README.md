@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Jah2130, french guy from Paris
 - 👀 I’m interested in crypto and spirits. The second one is my job, the first one a hobby 😄
-- 🌱 I’m currently learning everything I can about this universe
+- 🌱 I’m currently learning everything I can about Crypto and its suniverse
 - 💞️ I’m looking to collaborate on any project of the WEB3 ans especially on the IA ecosystem
 
 
